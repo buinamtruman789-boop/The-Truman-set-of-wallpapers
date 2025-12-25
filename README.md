@@ -1,0 +1,1 @@
+these might look ugly because I'm using an Apple Pencil Pro and the ESR shift, magnetic case and procreate. I know what you're saying."but Truman did you know that blah blah blah is better than Procreate?" and yes, that blah blah blah might be better than Procreate, but I have it and I better put it to use. I'll upload files as soon as I make it.
